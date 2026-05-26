@@ -1,0 +1,1 @@
+# zapret-AI-QWEN
